@@ -34,7 +34,7 @@ E-bay, SETI , HomeMadeComputers.com website , Data Vault at Night.
 MCSE education at dayschool & he work all night long, wow. so smart.
 
 After he, Drive Semi-Truck all over da USA and Canada & Mexico too.
-A world Travel person like myself. Is why only 1 of many, i love him so much.
+A world Travel person like myself. Is why... only 1 of many, i love him so much.
 
 He KNOWS da horror of "No love or ability to help da one(s) you love without.."
 Without what? u say... Love. But, is his Labor of Car repar, HIS 1 LOVE, dat my
@@ -44,7 +44,7 @@ His Repair is pay for bills, but love to all for his education of it, ability.
 Is hard 4 me & my husband to explain to all in English, as he was always C or D Student.
 NOT HIS FAULT!! He was not well educated in English. His Italian is better than most
 but MY Skill at this... Public talk i guess to say? 
-My skill is MUCH better than my Husband.
+My skill at people talk, not my husband TECH SPEEK?, is MUCH better than my Husband.
 
 He is a Do-er? he fix. Weld, Glue, Solder, Screw, Fix with His Hands of Love 4 ME...
 He is SUCH a dedicated husband, i am just waiting & for Visa call now, to Manila.
